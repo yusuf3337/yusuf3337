@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Mobile and cyber security**
 
-- 📫 How to reach me **myusufcepni1@gmail.com**
+- 📫 How to reach me **info.yusufcepni@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
